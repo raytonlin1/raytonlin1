@@ -5,5 +5,5 @@
 - 💻 I'm looking for 2026 new grad positions. Email me if you are a recruiter!
 
 ### 📫 Contact Me 
-[Email](mailto:raytonlin@gmail.com) | [LinkedIn](https://www.linkedin.com/in/raytonlin2002)
+[Email](mailto:raytonlin@gmail.com) | [LinkedIn](https://www.linkedin.com/in/raytonlin2002) | [Website](https://raytonlin.github.io/website/#/home)
 
